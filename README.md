@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Vaishnavjthakare
-- 👀 I’m interested in AIML
+- 👀 I’m interested in AIDS
 - 🌱 I’m currently learning BE Computer Engineering
 - Instagram: thakare073
 - Twitter/X : Thakare073
